@@ -1,16 +1,11 @@
-## Hi there 👋
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/d22c855f-8f08-492a-aa55-9b58ebeed468" width="500" height="50">
+    </p>
+    
+  <p align="center">
+  <img src="https://github.com/user-attachments/assets/51b4a41c-3d96-4091-8904-c174295b9e65" width="500" height="300">
+</p>
 
-<!--
-**sillybillykoijoi/sillybillykoijoi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/d22c855f-8f08-492a-aa55-9b58ebeed468" width="500" height="50">
+    </p>

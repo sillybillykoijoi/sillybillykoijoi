@@ -20,7 +20,13 @@ Rentry wipㅤ×
 <br />
 <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/8ad18d73-31f2-457a-a549-f8b457dca334" />
 <br />
-> Heyey, call me Koi or Javier. :-) I love making friends, even though I can be a bit awkward. Don't try to unironically roleplay with me out of the blue, hate when people do that, it's weird.
+> Heyey, call me Koi or Javier. :-) I'm in many fandoms, but I've been fixated on **Red Dead Redemption** for a year or two now, going strong. I love talking about my interests! ⸝⸝ I rarely interact first. (,,>﹏<,,)
 <br />
+
+ᴷᶜᵈ², ᴮᵍ³, ᵀʰᵉ ᴼʳᵈᵉʳ ¹⁸⁸⁶, ᵀʷᵃᵘ, ᴰᵇʰ, ᴮʳᵒᵏᵉᵇᵃᶜᵏ ᴹᵒᵘⁿᵗᵃᶦⁿ, ᵀᶠ², ᴰᵉˡᵗᵃʳᵘⁿᵉ ⁺ ᵁⁿᵈᵉʳᵗᵃˡᵉ, ᶠⁿᵃᶠ, ᴰˢᵃᶠ, 
+
+ 
+
+  <br />
 <br />
 Sign my atabook!

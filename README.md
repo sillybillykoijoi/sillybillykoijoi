@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=sillybillykoijoi)
+![](https://komarev.com/ghpvc/?username=sillybillykoijoi&color=dc747c&label=Stinkies&style=plastic)
 <br />
 <img width="1000" height="1120" alt="image" src="https://github.com/user-attachments/assets/b830c305-d870-4f6b-8100-57091c7104de"/>
 <p align="center"> $\color{#d2b96c}{Javier󠀠󠀠󠀠󠀠󠀠 Escuella⠀Kinnie.}$

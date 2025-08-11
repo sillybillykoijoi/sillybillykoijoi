@@ -14,7 +14,7 @@
 
 
 
-Rentry wipㅤ×
+[Rentry](https://rentry.co/sbkj)ㅤ×
 ㅤ[Atabook](https://sillybillykoijoi.atabook.org/)ㅤ×ㅤ[Guns.lol](https://guns.lol/sillybillykoijoi)ㅤ×ㅤStrawpage wipㅤ
 <br />
 <br />

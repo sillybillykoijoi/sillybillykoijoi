@@ -1,10 +1,5 @@
 <div align="center">
 
-<br />
-
-𝕬𝒃𝒐𝒖𝒕 𝒎𝒆
-
-<br />
   
 ![](https://komarev.com/ghpvc/?username=sillybillykoijoi&color=724b2f&label=Folks&style=plastic)
 <br />
@@ -17,9 +12,13 @@
 
 
 
+<br />
 
+𝕬𝒃𝒐𝒖𝒕 𝒎𝒆
 
-[𝕽](https://rentry.co/sbkj)entryㅤ×
+<br />
+
+ㅤㅤ[𝕽](https://rentry.co/sbkj)entryㅤ×
 ㅤ[𝕬](https://sillybillykoijoi.atabook.org/)tabookㅤ×ㅤ[𝕲l](https://guns.lol/sillybillykoijoi)uns.lolㅤ×ㅤStrawpage wipㅤ
 ㅤ
 <br />

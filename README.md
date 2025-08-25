@@ -19,7 +19,7 @@
 <br />
 
 ㅤㅤ[𝕽](https://rentry.co/sbkj)entryㅤ×
-ㅤ[𝕬](https://sillybillykoijoi.atabook.org/)tabookㅤ×ㅤ[𝕲l](https://guns.lol/sillybillykoijoi)uns.lolㅤ×ㅤStrawpage wipㅤ
+ㅤ[𝕬](https://sillybillykoijoi.atabook.org/)tabookㅤ×ㅤ[𝕲l](https://guns.lol/sillybillykoijoi)uns.lolㅤ×ㅤ[𝕾](https://sillybillykoijoii.straw.page)trawpage
 ㅤ
 <br />
 <br />

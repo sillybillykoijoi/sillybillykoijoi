@@ -28,7 +28,7 @@
 > Heyey, call me Koi or Javier. :-) I'm in many fandoms, but I've been fixated on **Red Dead Redemption** for a year or two now, going strong. I love talking about my interests! ⸝⸝ I rarely interact first. （´∇｀''）
 <br />
 
-ʳᵈʳ², ᴷᶜᵈ², ᴮᵍ³, ᵀʰᵉ ᴼʳᵈᵉʳ ¹⁸⁸⁶, ᵀʷᵃᵘ, ᴰᵇʰ, ᴮʳᵒᵏᵉᵇᵃᶜᵏ ᴹᵒᵘⁿᵗᵃᶦⁿ, ᵀᶠ², ᴰᵉˡᵗᵃʳᵘⁿᵉ ⁺ ᵁⁿᵈᵉʳᵗᵃˡᵉ, ᶠⁿᵃᶠ, ᴰˢᵃᶠ, ᶠᵒʳˢᵃᵏᵉⁿ 
+ᴿᵉᵃᵈ ˢᵗʳᵃʷ ᶠᵒʳ ᵐᵒʳᵉ ᶦⁿᶠᵒ
 
  
 

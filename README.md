@@ -32,6 +32,11 @@
 
  
 
-  <br />
+ <br />
 <br />
-Sign my atabook!
+Do not interact if you associate with Ollie. Please read straw linked below, thank you!
+<br />
+<br />
+
+[ollie59845958](https://ollie59845958.straw.page/)
+

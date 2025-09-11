@@ -18,8 +18,8 @@
 
 <br />
 
-ㅤㅤ[𝕽](https://rentry.co/sbkj)entryㅤ×
-ㅤ[𝕬](https://sillybillykoijoi.atabook.org/)tabookㅤ×ㅤ[𝕲l](https://guns.lol/sillybillykoijoi)uns.lolㅤ×ㅤ[𝕾](https://sillybillykoijoii.straw.page)trawpage
+ㅤㅤ[𝖕](https://pronouns.cc/@sillybillykoijoi)ronouns.cc
+⠀ ⠀ ⠀ ⠀ ⠀[𝖆](https://sillybillykoijoi.atabook.org/)tabook⠀ ⠀ ⠀ ⠀ ⠀  [𝖌](https://guns.lol/sillybillykoijoi)uns.lol⠀ ⠀ ⠀ ⠀ ⠀  [𝖘](https://sillybillykoijoii.straw.page)trawpage
 ㅤ
 <br />
 <br />
